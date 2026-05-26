@@ -1,0 +1,1 @@
+Bu loyiha haqida ma'lumot
